@@ -1,1 +1,1 @@
-# joorryaa2.gitub.io
+# joorryaa2.github.io
